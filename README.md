@@ -1,5 +1,7 @@
 # CV
 
+#Canva: https://www.canva.com/design/DAHTxLOHYlI/WCchSAVp5azMUsaZwHa4mQ/edit
+
 # Hi, I'm Kasen
 
 ### Junior Python Developer | 3D Technical Artist

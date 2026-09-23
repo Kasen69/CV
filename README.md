@@ -1,6 +1,6 @@
 # CV
 
-#Canva: https://www.canva.com/design/DAHTxLOHYlI/WCchSAVp5azMUsaZwHa4mQ/edit
+#Canva: [https://www.canva.com/design/DAHTxLOHYlI/WCchSAVp5azMUsaZwHa4mQ/edit](https://canva.link/qxvl892vhba8ae4)
 
 # Hi, I'm Kasen
 
